@@ -1,0 +1,1 @@
+Até agora estou gostando bastante do curso, agradeço por ser gratuito
